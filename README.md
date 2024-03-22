@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/ngalinos95](https://github.com/ngalinos95)
 
-- 📫 How to reach me **ngalinos95@me.com**
+- 📫 How to reach me **ngalinos95@icloud.com**
 
 
 <h3 align="left">Connect with me:</h3>
